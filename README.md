@@ -1,5 +1,5 @@
 ### Hi
-I will propably mostly use this like a cloud, so there won't be a lot on here and no colobarative works.  
+I will propably mostly use this like a cloud, so there won't be a lot on here and no collaborative works.  
 Have a good day
 
 
